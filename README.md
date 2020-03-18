@@ -1,2 +1,2 @@
 # lugman.txt
-hack by hack Kurdish
+hack by Luqman Kurdish
